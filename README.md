@@ -1,3 +1,3 @@
 # Linux Notes 
 
-![команды](https://www.meme-arsenal.com/memes/d73e87607fbd0f5d3f47323dd5ff761d.jpg)
+![команды](https://media1.tenor.com/m/NZqiUoAnAFsAAAAC/cat-computer.gif)
